@@ -1,1 +1,2 @@
 # Ideas-claras-para-pensar-mejor
+Pensar desde lo básico es el verdadero acto de aprender. No se trata de repetir lo que dicen los libros, sino de poder explicarlo con tus propias palabras. Las ideas que no pueden expresarse con claridad suelen esconder confusión. Cuando simplificás lo complejo y lo explicás como si hablaras con un niño, empezás a comprenderlo de verdad. Aprender es encontrar luz en lo simple.
